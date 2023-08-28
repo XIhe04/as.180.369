@@ -1,2 +1,8 @@
-here is my initial summay for Dennett article.
-This article is talking about the negative effects that counterfeit people bring to us, such as destroying the economy, freedom of human, culture and so on. The counterfeit people will be very dangerous, because they may lose control, due to automatic reproduction. 
+here is my initial summary of Dennett's article.
+This article talks about the negative effects that counterfeit people bring to us, such as destroying the economy, freedom of humans, culture of humans, and so on.
+This is because democracy depends on the informed consent of the governed, rather than on false or embellished information (misguided). 
+Counterfeit people are playing the role of misleaders here, distracting us by providing misleading information, leaving us confused, fearful, and anxious, so that they can persuade us to adopt policies and beliefs, making us more vulnerable to more manipulation, and then becoming passive, ignorant pawns.
+Woresly, for humans, counterfeit people may be more dangerous than nuclear weapons, due to they may lose control because they have the ability to automatically reproduce.  
+Luckily, the author also pointed out that we can learn from the method of identifying counterfeit banknotes to distinguish between real people and counterfeit people.
+For example, working with the manufacturers of mobile phones, computers, digital TVs, and other devices to install software that can interrupt any counterfeit people, but we need to get software out and put it into use quickly.
+At the same time, we could also come up with penalties (like jail time) for inventing these counterfeit people, and rewards for discovering them.
