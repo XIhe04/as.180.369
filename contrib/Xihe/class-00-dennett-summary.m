@@ -21,4 +21,8 @@ put it into use quickly. At the same time, we could also come up with penalties
 (like jail time) for inventing these counterfeit people, and rewards for discovering 
 them.
 
-In my opinion, everything has two sides. So, the creator of counterfeit people
+In my opinion, everything has two sides. So, the people who invented the counterfeit
+people must have done so to fulfill some need, such as helping humans to perform 
+repetitive tasks.In fact, after the appearance of counterfeit people, people do get a lot of 
+convenience, such as repetitive and boring work are replaced by artificial intelligence. 
+
