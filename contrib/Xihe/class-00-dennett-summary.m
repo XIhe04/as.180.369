@@ -1,4 +1,5 @@
-here is my initial summary of Dennett's article.
+Here is my initial summary of Dennett's article.
+
 This article talks about the negative effects that
 counterfeit people bring to us, such as destroying 
 the economy, freedom of humans, culture of humans, 
