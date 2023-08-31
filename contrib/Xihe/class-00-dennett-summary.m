@@ -21,8 +21,14 @@ put it into use quickly. At the same time, we could also come up with penalties
 (like jail time) for inventing these counterfeit people, and rewards for discovering 
 them.
 
-In my opinion, everything has two sides. So, the people who invented the counterfeit
-people must have done so to fulfill some need, such as helping humans to perform 
-repetitive tasks.In fact, after the appearance of counterfeit people, people do get a lot of 
+In my opinion, everything has two sides. So, the human who invented the counterfeit
+human must have done so to fulfill some need, such as helping humans to perform 
+repetitive tasks.In fact, after the appearance of counterfeit people, human do get a lot of 
 convenience, such as repetitive and boring work are replaced by artificial intelligence. 
+Counterfeit people can also help human organize information to help human save a lot of time. 
+However, if they are not used well or used by human with bad intentions, they will provide
+negative impacts, as mentioned in the article, they can destroy our civilization. 
+So I think the emergence of dummies as a technology, whether it is good or bad depends 
+on what human use it for, because dummies are just a tool, and there is no good or 
+bad in the tool itself.
 
